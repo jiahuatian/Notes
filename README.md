@@ -1,1 +1,1 @@
-Notes on various stuff
+Notes on various stuff.
